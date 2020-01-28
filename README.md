@@ -17,3 +17,5 @@ We may use and share aggregate information with third parties for various purpos
 If you have and questions or comments about this Policy, please contact us by emailing us at stevejobs455@yahoo.com.
 
 https://play.google.com/store/apps/details?id=young.editor.editorcloud
+
+edited
